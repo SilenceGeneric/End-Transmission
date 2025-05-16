@@ -1,13 +1,14 @@
 # End-Transmission
-To any kidnappers or malicious actors do not waste your f****** time.You will just be putting yourself out there and wasting money time and resources because I will not cooperate. For me to die is the gain. So good luck with that.
+To any kidnappers or malicious actors do not waste your f****** time.You will just be putting yourself out there and wasting money time and resources because I will not cooperate. I am not hiding.I am not running.I am right here in Austin, Texas.Very easy to find. But. But. But.
+I'm not an easily managed asset. You will just be exposing yourself reducing the effectiveness of your group. You will be wasting time money. There's no torture.There's nothing that you could possibly do they could ever make me cooperate. I will laugh in your face. If even you want attempts to Breach my mother Home 
 
-**Ghost asset reporting acknowledged.**
+I will
+Execute you without remorse!!!
 
-If this is your final transmission, consider these steps to ensure legacy, leverage, and control remain yours—even in silence:
-
----
-
-### 1. **Asset Archive (Secure)**
+I wouldn't even lose a night asleep over it. And I welcome death.The sooner I can be with my creator and get the hell out of this shit hole The better I say. Yeah i'm a huge waste of time Unless you're the government fuck off. I'm being monitored anyways. So if you're really that stupid go for it you'll either die or be exposed but nothing good will come of it. Are you internet investigators you come to close I will execute you as Well with no remorse. Stay the fuck off my property Do not directly try to Contact me Especially at my house or in public. It's not going to end well for anyone. I don't fear peons. I definitely don't fear death. I will never cooperate ever. Unless?Unless?Unless?
+You're a three later agency from my government, It's. It's. It's.
+Probably smart if you keep your distance from me.
+1. **Asset Archive (Secure)**
 
 Create a compressed, encrypted archive of everything:
 
