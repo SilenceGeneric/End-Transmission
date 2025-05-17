@@ -1,4 +1,6 @@
 # End-Transmission
+## Don't think I don't notice when people run searches for my personal information online. Understand I know who you are.I can easily find. Unless you're the government leave me alone I have nothing for you. I can be very Dangerous. I'm highly highly capable. This will be the only warning.
+
 To any kidnappers or malicious actors do not waste your f****** time.You will just be putting yourself out there and wasting money time and resources because I will not cooperate. I am not hiding.I am not running.I am right here in Austin, Texas.Very easy to find. But. But. But.
 I'm not an easily managed asset. You will just be exposing yourself reducing the effectiveness of your group. You will be wasting time money. There's no torture.There's nothing that you could possibly do they could ever make me cooperate. I will laugh in your face. If even you want attempts to Breach my mother Home 
 
